@@ -1,0 +1,1 @@
+The original figma document can be visited on the following header: https://www.figma.com/file/rgXO5tRBQ9U5H1eFQk6s6W/Rainbow-6%3A-Siege-Redesign?type=design&node-id=0%3A1&mode=design&t=s7w6pebBI2PCPdJc-1
